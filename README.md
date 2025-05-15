@@ -1,6 +1,8 @@
 ![17469221454207537440449379695189](https://github.com/user-attachments/assets/009b03ff-c00e-4fc1-b84b-f4a6b36ae393)
 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&pause=1000&color=647B4DE5&width=435&lines=hello+youtube!;today+I'm+going+to+make+a+tour+of+the+second+version+of+the+house;droga;falei+errado;vou+ter+que+recome%C3%A7ar;que+saco;eu+me+pergunto+o+que+eu+podia+adicionar+naquele+canto+vazio;eu+you+falar+com+o+cappy;ele+e+muto+melhor+construindo+do+que+eu+xD)](https://git.io/typing-svg)
+
 <!--
 **r0chas313/r0chas313** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
