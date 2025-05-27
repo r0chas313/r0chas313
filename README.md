@@ -1,5 +1,6 @@
 ![17483554721345527643144539927851](https://github.com/user-attachments/assets/5f10dec8-63fd-4a1d-87ad-94d320338b6d)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Smooch+sans&pause=1000&color=B0A55CD2&width=435&lines=C'mon!+Have+some+sweets+!;Baked+these+just+for+you+guys+!;This+will+make+you+happy+!;august++14th+2024+.;I'm+just+making+sure+you're+okay+!)](https://git.io/typing-svg)
 <!--
 **r0chas313/r0chas313** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
