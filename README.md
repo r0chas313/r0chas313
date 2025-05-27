@@ -1,3 +1,4 @@
+![17483554721345527643144539927851](https://github.com/user-attachments/assets/5f10dec8-63fd-4a1d-87ad-94d320338b6d)
 
 <!--
 **r0chas313/r0chas313** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
